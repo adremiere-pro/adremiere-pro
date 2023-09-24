@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @adremiere-pro
-- 💞️ I’m looking to collaborate on IT domains as Product Owner
-- 📫 How to reach me at https://dremiere.com
+- 💞️ I’m looking to collaborate on IT domains as Product Owner / Project Manager
+- 📫 How to reach me at https://dremiere.com and https://www.linkedin.com/in/adremiere/
